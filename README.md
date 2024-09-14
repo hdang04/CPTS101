@@ -1,1 +1,1 @@
-# CPTS101
+# CPTS101Hunter Dang | hunter.dang@wsu.edu
